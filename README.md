@@ -1,0 +1,1 @@
+# Ushtrime-me-ndertimin-e-portave-logjike-OR-NOT-AND-
